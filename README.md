@@ -1,0 +1,2 @@
+# singularidadedigital
+artigo sobre singularidade
